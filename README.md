@@ -3,7 +3,7 @@
 - 💻 Computer Science student at National University of Singapore <br/>
 - 💡 Connect with me! https://www.linkedin.com/in/jing-xiang-fong/ <br/>
 - 📫 How to reach me: fjxfong@gmail.com <br/>
-- ⚡ Fun fact: I love sports! <br/>
+- ⚡ Fun fact: I love sports! and I have summited mt Kinabalu!! <br/>
 
 
 ## 🌐 Socials:
